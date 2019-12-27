@@ -1,0 +1,1 @@
+# 2minsrule.github.io
